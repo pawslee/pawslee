@@ -1,5 +1,4 @@
-they/them
+It/Its~
 
-nb demi lesbian furry
-
-langs that i use/know/am interested in: haskell, scala, lua, cpp, js/ts, c#, rust
+Silly Doggy That Loves Paws And Barking OwO!
+Arf Arf! ;3
